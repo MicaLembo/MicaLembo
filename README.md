@@ -1,5 +1,6 @@
 ### Hi there 👋
 
+- 🎓 PhD Candidate in Epidemiology at Stempel College, Florida International University.
 - 🔭 I’m currently working on neighborhood, cultural and familial factors contributing to Latino adolescents' mental health.    
 - 👯 I’m looking to collaborate on projects related to Latino health, mental health, chronic diseases and brain function 
 - 📫 How to reach me: Mlemb002@fiu.edu
